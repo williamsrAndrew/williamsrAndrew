@@ -24,4 +24,3 @@
 
 ## Where to find me
 [<img align="left" alt="williamsrandrew | Twitter" width="22px" src="https://cdn-icons-png.flaticon.com/512/124/124021.png" />](https://twitter.com/williamsrandrew?t=jeH4rjDvQojJAaTMPR2thA&s=09)
-[<img align="left" alt="andrew williams | LinkedIn" width="22px" src="https://cdn-icons.flaticon.com/png/512/3536/premium/3536505.png?token=exp=1643218693~hmac=08e2be116c09a0eb677a99964cd3e0a2" />](https://www.linkedin.com/in/andrew-williams-0b869749)
